@@ -1,1 +1,1 @@
-# news
+# techno29382.github.io
